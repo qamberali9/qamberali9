@@ -2,7 +2,7 @@
 - 👀 I’m interested in Gaming, making and exploring.
 - 🌱 I’m currently learning the programming and backend language like js, react, etc.
 - 💞️ I’m looking to collaborate on React js projecct to make something different.
-- 📫 dm me on instagram @stuffbyqamber
+- 📫 dm me on instagram @qamberaliowaisi
 - 😄 Pronouns: he
 - ⚡ Fun fact: idk lol
 
